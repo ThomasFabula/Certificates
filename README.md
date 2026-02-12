@@ -5,6 +5,6 @@ Awards, Certificates, Zertifikate, Zeugnisse, Testimonials, etc.
 
 ## Scientific
 
-## Sportive activities
+## Sportive achivements
 
 ## Social engagement
