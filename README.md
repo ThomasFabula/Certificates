@@ -1,2 +1,2 @@
 # Certificates
-Certificates, Zertifikate, Zeugnisse, testimonials, etc.
+Awards, Certificates, Zertifikate, Zeugnisse, Testimonials, etc.
