@@ -11,6 +11,7 @@ Awards, Certificates, Zertifikate, Zeugnisse, Testimonials, etc.
 - https://tfconsult.com/tag/diplom/
 - https://tfconsult.com/tag/dissertation/
 - https://tfconsult.com/mems-patent/
+- https://github.com/ThomasFabula/Patent
   
 ## Sportive achievements
 - https://tfconsult.com/1st-world-games-in-santa-clara/
