@@ -24,5 +24,8 @@ Awards, Certificates, Zertifikate, Zeugnisse, Testimonials, etc.
 ## Social engagement
 - https://tfconsult.com/ehrung-durch-rotary/
 - https://tfconsult.com/rotary-paul-harris-award/
+- https://tfconsult.com/sports-and-volunteering-activities/
+- https://tfconsult.com/how-integration-can-succeed/
+- https://tfconsult.com/mentoring-young-talents/
 
   
